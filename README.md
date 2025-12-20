@@ -7,7 +7,7 @@
 ╭─────────────────. ִ ࣪ ⋆ ೀ ─╮
  
  
- .  .   spam following! @KOKlCHI
+ . ୨୧ . spam following! @KOKlCHI < my main
 
 
  ╰─ ִ ࣪ ⋆ ೀ ─────────────────╯
