@@ -11,5 +11,4 @@
 
 
  ╰─ ִ ࣪ ⋆ ೀ ─────────────────╯
-
-<div style="left: 0; width: 100%; height: 152px; position: relative;"><iframe src="https://open.spotify.com/embed/track/5kjSGec4jrbIrehheHGeaS?utm_source=oembed" style="top: 0; left: 0; width: 100%; height: 100%; position: absolute; border: 0;" allowfullscreen allow="clipboard-write *; encrypted-media *; fullscreen *; picture-in-picture *;"></iframe></div>
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
