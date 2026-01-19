@@ -7,7 +7,7 @@
 ╭─────────────────. ִ ࣪ ⋆ ೀ ─╮
  
  
- . ୨୧ . spam following! blck if unwntd.
-
+ . ୨୧ . (kind of) spam following! blck if unwntd.
+    follow my main @ KOKlCHI 
 
  ╰─ ִ ࣪ ⋆ ೀ ─────────────────╯
