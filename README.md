@@ -3,6 +3,10 @@
 </p>
 <p align="center"><img width="500" height="166" alt="1000065176" src="https://github.com/user-attachments/assets/be0abceb-38d5-4c21-b311-df04956959d8" />
 </p>
-<img width="250" height="250" alt="image-removebg-preview (31)" src="https://github.com/user-attachments/assets/0e38ffbe-9c64-4906-b3e3-61c4cc48d346" />
-
-WIP GO AWAY DON'T LOOK
+<p align="center">$\color{#ffc4de} hi ‎! ‎this ‎is ‎a ‎wip ‎!$
+  <p align="center">$\color{#fee3c1} hehim︶alt/spam ‎account$<p align="right">
+    <p align="center">$\color{#ffc4de} C+H ‎𝘀𝘁𝗿𝗼𝗻𝗴𝗹𝘆 ‎enc ‎.$
+</p>
+<p align="left"><img width="250" height="250" alt="image-removebg-preview (33)" src="https://github.com/user-attachments/assets/35db8970-186d-481e-8c0b-b886f12c1e1f" /> 
+<p align="right">
+if someone could help me because why tf can't my text go next to the pic like i don't understand.
